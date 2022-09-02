@@ -1,0 +1,1 @@
+this some cool shit about linux
